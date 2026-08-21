@@ -12,7 +12,7 @@
 <p align="center">$\color{#90EE90}{\text{I love dinosaurs and animals w all means}}$</p>
 <p align="center">$\color{#90EE90}{\text{ and I LOVE yapping abt dinos alot <3 }}$</p>
 <p align="center">$\color{#90EE90}{\text{ (I might not accept any fqs due issues in my life currently) }}$</p>
-<p align="center">$\color{#90EE90}{\text{ Dni if ur pedo or think liking childern/lolis is okay }}$</p>
+<p align="center">$\color{#90EE90}{\text{ Dni if ur pedo or think liking children/lolis is okay }}$</p>
 
 <p align="center">
   <a href="https://en.pronouns.page/@Pupps">
