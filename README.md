@@ -1,5 +1,5 @@
 <p align="center">
-  <a href="" target="_blank">
+  <a href="https://pupscooler.straw.page/">
     <img src="https://u.cubeupload.com/RAAAAAA/11988693840x1080desk.jpg" width="1000">
   </a>
 </p>
@@ -15,7 +15,7 @@
 <p align="center">$\color{#90EE90}{\text{ Dni if ur pedo or think liking childern/lolis is okay }}$</p>
 
 <p align="center">
-  <a href="" target="_blank">
+  <a href="https://en.pronouns.page/@Pupps">
     <img src="https://u.cubeupload.com/RAAAAAA/tlchargement27Photor.png" width="160">
   </a>
 </p>
